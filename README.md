@@ -1,0 +1,1 @@
+# Avtodor_static
